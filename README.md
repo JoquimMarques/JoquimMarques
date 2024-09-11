@@ -18,7 +18,7 @@ Apaixonado por transformar ideias em realidade com código!
 
 ## 📫 Como me encontrar
 Fique à vontade para me conectar em:
-- [LinkedIn](https://www.linkedin.com/in/seu-perfil)
+- [LinkedIn](https://linkedin.com/in/joaquim-césar-francisco-marques-2b957a2a7)
 - [Email](mailto:nelsonmarquesj55@gmail.com)
 
 ## 😄 Pronomes: Ele/Dele
